@@ -1,0 +1,1 @@
+# SSB-470-Assignment-7-Quick-Responsive
